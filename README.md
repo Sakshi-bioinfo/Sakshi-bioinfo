@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **machine learning.**
 
-- 📫 How to reach me **saks.30.9.01@gmail.com**
+- 📫 How to reach me **s.sharma.bioinfo@gmail.com**
 
 - ⚡ Fun fact **I am a very good singer.**
 
